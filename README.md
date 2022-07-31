@@ -1,1 +1,0 @@
-# maiqhadata.github.io
